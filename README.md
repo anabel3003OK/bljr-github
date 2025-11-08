@@ -3,7 +3,7 @@
 ### Tentang Saya
 - 🌱 Sedang belajar: **[ngoding]**  
 - 💬 Tertarik dalam: **[bidang Web Development]**  
-- 📫 Hubungi saya di: **[putri leota anabel]**  
+- 📫 Hubungi saya di: **[putrileotaanabel3003@gmail.com]**  
 - ⚡ Fun fact: **[aku bisa tidur sambil merem]**
 
 ---
